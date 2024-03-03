@@ -5,13 +5,13 @@
 
 📝 Check my resume out here: https://docs.google.com/document/d/1BV4s6sOTncgSDxRKVWmttqfHresTevylfR5bzbOqRv8/edit?usp=sharing
 
-💬 Message me here: https://www.linkedin.com/in/arianna-the-dev/
+💬 Message me here: https://www.linkedin.com/in/scoutastic/
 
-📫 Reach me via email: ariannabrunson47@gmail.com
-📲 Call Me here: 1 937-471-9352
+📫 Reach me via email: scoutastic469@gmail.com
+📲 Call Me here: 1 937-450-8777
 
 
-Scout Brunson's GitHub Stats C
+Scout Branson's GitHub Stats C
 Total Stars Earned: 0
 Total Commits (2024): 41
 Total PRs: 0
